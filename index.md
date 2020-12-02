@@ -1,6 +1,6 @@
 # **Twilight Renaissance**
 
-Since its conception in 2005, the Twilight books and movies have garnered the love and support of many throughout the globe. Whether you are a teen or an adult, come join the bookworms and movie lovers who are in love with the cultural movement that has supported the following below.
+Since its conception in 2005, the Twilight books and movies have garnered the love and support of many throughout the globe. Whether you are a teen or an adult, come join the bookworms and movie lovers who are in love with the cultural movement that has supported the following below. As new additions of books are added to the Twilight series, the revitalization of the fandom is anticipated. It is time for a new generation of fans and critics to support the release of new books.
 
 1. _**Support Literacy**_: More than 100 million copies of Twilight books have been sold worldwide. Through its captivating story, the franchise has promoted literacy to many students and adults. 
 2. _**Increase Tourism**_: The remote town of Forks has seen many tourists from around the country visit to catch a glimpse of the Forks welcome sign, Forks High School, and the Cullen house. The tourism the series has generated is supporting the local businesses.
@@ -9,4 +9,6 @@ Since its conception in 2005, the Twilight books and movies have garnered the lo
 5. _**Experience an All-Around Entertainment**_: Not only did Twilight create hype around its books and movies, but its music is phenomenal! From Sleeping At Last and American Mouth to Christina Perri, the diversity of music in the franchise’s playlist is astounding.
 6. _**Join a Fandom**_: Twilight has created a fandom culture and craze. Fandom debates about Team Jacob versus Team Edward have engaged the community. The release of merchandise has been steady throughout the years. Many users are still creating additional content in the forms of memes, fan-made videos, fanfiction, drawings, etc.
 
-The Twilight fandom has supported causes and provided premium entertainment over the years. Being more than a consumer circle, Twilight fans are active members and supporters of a cultural phenomenon. Come join this ever-growing community.
+The latest publication of _Midnight Sun_ to the Twilight franchise and Meyer's announcement that there will be two more installments to the series are signs that new and old readers should be excited. It is time to come together to support the series and reinvigorate the fandom.
+
+The Twilight fandom has supported causes and provided premium entertainment over the years. Being more than a consumer circle, Twilight fans are active members and supporters of a cultural phenomenon. Come join this ever-growing community to support the books and movies.
